@@ -1,4 +1,4 @@
-
+deadlock esp new Scripts - enemy hero true strike and instant respawn is the best deadlock esp scripts, featuring enemy hero true strike and instant respawn. Safe, undetected, and
 
 
 
